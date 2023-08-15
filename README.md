@@ -31,3 +31,8 @@ I'm still a Student, pursuing my B.Tech (3rd year, at 2023). I dreamt to be a Da
 
 - [@Mainakcris7](https://github.com/Mainakcris7)
 
+
+
+## Feedback
+
+If you have any feedback, please reach out to us at mainakcr72002@gmail.com
